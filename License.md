@@ -1,0 +1,2 @@
+ §28[bd]
+“This is merely a jewel from this ordinary world, so it is not precious. Of all jewels, the jewel of the dharma is the most superior of all. The pearl’s radiance is also just the radiance of the ordinary world, and thus is not precious. Of all radiances, the radiance of the dharma jewel is the most superior of all. The pearl’s illumination is also just the illumination of the ordinary world, and thus is not precious. Of all illuminations, the illumination of the dharma jewel is the most superior of all.”
